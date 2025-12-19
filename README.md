@@ -19,4 +19,4 @@ A metal water bottle
 A cloth napkin instead of paper tissues
 
 What’s Your Idea?
-I want to know—have you ever made something cool out of "trash"? Last month, I made a robot out of cereal boxes!
+I want to know—have you ever made something cool out of "trash"? Last month, I made a robot out of cereal boxes!!
